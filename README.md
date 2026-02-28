@@ -65,9 +65,6 @@ The goal is to replicate and empirically examine the key observations described 
 
 Email: danilakozloff.04@gmail.com
 
-Telegram: https://t.me/moon_mon_key
-
-
 
 
 
